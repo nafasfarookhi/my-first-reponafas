@@ -1,4 +1,4 @@
 # my-first-reponafas
-test github nafas
+test github nafass
 i love you nft air bera
 happy nft berachain
