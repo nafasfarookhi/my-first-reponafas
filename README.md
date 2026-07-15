@@ -1,4 +1,4 @@
-# my-first-moohub
+# my-first-moohu
 test github nafass6-good
 i love you nft air be
 happy nft berachai
