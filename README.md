@@ -1,5 +1,5 @@
 # my-first-
-test github nafass
+test github nafa
 i love you nft 
 happy nft beracha
 co
