@@ -1,6 +1,6 @@
 # my-fir
 test github 
-i love you nft 
+i love you 
 happy nft 
 co
 Future of human colonies
