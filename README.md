@@ -1,7 +1,7 @@
 # my-fir
 test github 
 i love 
-happy nft 
+happy 
 co
 Future of human colonies
 test
