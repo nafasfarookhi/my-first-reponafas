@@ -1,5 +1,5 @@
 # my-fir
-test github 
+test 
 i love 
 happy 
 co
