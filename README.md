@@ -7,3 +7,4 @@ https://x.com/somayyeh1990/status/2103693206642631161?s=20
 Future of human colonies
 test
 https://x.com/somayyeh1990/status/2101600108118675705?s=20
+the latest update looks promising
