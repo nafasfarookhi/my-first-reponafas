@@ -2,7 +2,7 @@
 https://x.com/somayyeh1990/status/2107677752274919462?s=20
 https://x.com/somayyeh1990/status/2102005460270190701?s=20
 the latest update caught my eye
-https://x.com/somayyeh1990/status/2109487993970934067
+https://x.com/somayyeh1990/status/210948799397093
  I like seeing the bigger picture become clearer
 https://x.com/somayyeh1990/status/2110230795256242282?s=20
 https://x.com/somayyeh1990/status/2103693206642631161?s=20
