@@ -4,7 +4,7 @@ the latest update caught my eye
 https://x.com/somayyeh1990/status/2109487
  I like seeing the bigger picture become clearer
 https://x.com/somayyeh1990/status/2103693206642631161?s=20
-Future of human coloni
+Future of humi
 https://x.com/somayyeh1990/status/2101600108118675705?s=20
 the latest update looks promising
 Castleton had no lawyer and the other side’s record against him. Cheap independent review matters most for people who cannot pay for someone to question the evidence.
