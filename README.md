@@ -1,6 +1,6 @@
 <img width="472" height="508" alt="Screenshot 2026-10-01 222413" src="https://github.com/user-attachments/assets/6e2a103b-5701-41ef-a91f-5343eb6b9ebe" />
 https://x.com/somayyeh1990/status/2107677752274919462?s=20
-the latest update caught my eye
+the latest update caught my 
 https://x.com/somayyeh1990/status/2109487
  I like seeing the bigger picture become clearer
 https://x.com/somayyeh1990/status/2103693206642631161?s=20
